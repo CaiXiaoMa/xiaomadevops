@@ -1,1 +1,1 @@
-Welcome :green_heart: everybody
+Welcome :green_heart: :zap: everybody
